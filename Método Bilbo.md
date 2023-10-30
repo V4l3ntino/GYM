@@ -20,6 +20,7 @@ Después de terminar un ciclo podemos pasar a la **Adaptación a fuerza**
 	1. Seguimos con el resto de ejercicios.
 2. Jueves: subimos 2,5kg más y hacemos 12 repeticiones.
 	1. Seguimos con el resto de ejercicios.
+
 Seguimos incrementando hasta que lleguemos hacer no más de 5 repeticiones. Entonces se completaría el ciclo de la **adaptación de fuerza**.
 
 
